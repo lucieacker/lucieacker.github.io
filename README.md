@@ -1,1 +1,1 @@
-# lucieacker.github.io
+Map of My Favorite Places
